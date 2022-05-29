@@ -1,1 +1,1 @@
-# Pricing-and Sale Strategy
+# Pricing and Sale Strategy
